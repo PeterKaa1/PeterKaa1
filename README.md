@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Peter
-- 👀 I’m interested in... Android Application Development
+- 👀 I’m interested in... Composing music.
 - 📫 How to reach me... Through Discord: floatingsatellite
 - Through Instagram: igetsentimental
 
